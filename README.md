@@ -5,6 +5,6 @@
 
 We are hiring talents (Fulltime/Internship) on **ASR, MT**, and other speech related areas. If you are looking for opportunities in Singapore, U.S. and China, please contact me or our HR.  
 
-Let's delivering happiness togethere.
+Let's deliver happiness togethere.
 
 
